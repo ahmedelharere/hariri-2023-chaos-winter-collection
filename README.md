@@ -11,7 +11,8 @@ The Hariri 2023 Collection is a bold narrative of balance between stillness and 
 Each piece is a call to **challenge comfort**, **break norms**, and embrace your vision.
 
 ## 📸 Visuals
-A look into the collection and the Story: [Chaos Collection Poster] (https://www.canva.com/design/DAGvatKnOjI/EsjjHp8KZhdx_t0NBofcNA/view?utm_content=DAGvatKnOjI&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h5b4bde4357)
+Take a look into the story and inspiration behind the design:  
+👉 [View Chaos Collection Poster on Canva](https://www.canva.com/design/DAGvatKnOjI/EsjjHp8KZhdx_t0NBofcNA/view?utm_content=DAGvatKnOjI&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h5b4bde4357)
 
 ## 📦 Info
 - Designed in Egypt 🇪🇬
