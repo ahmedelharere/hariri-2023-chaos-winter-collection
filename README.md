@@ -11,12 +11,12 @@ The Hariri 2023 Collection is a bold narrative of balance between stillness and 
 Each piece is a call to **challenge comfort**, **break norms**, and embrace your vision.
 
 ## 📸 Visuals
-![Chaos Collection Poster](https://github.com/yourusername/yourrepo/blob/main/hariri-2023-chaos.png?raw=true)
+![Chaos Collection Poster](https://www.canva.com/design/DAGvatKnOjI/EsjjHp8KZhdx_t0NBofcNA/view?utm_content=DAGvatKnOjI&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h5b4bde4357#3)
 
 ## 📦 Info
 - Designed in Egypt 🇪🇬
 - Nationwide delivery
-- For inquiries: **hariri.eh@gmail.com**
+- For inquiries: **hariri.eg@gmail.com**
 - Instagram: [@hariri.eg](https://www.instagram.com/hariri.eg)
 
 ## 🌍 Explore More
